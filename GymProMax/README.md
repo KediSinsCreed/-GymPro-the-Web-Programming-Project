@@ -1,2 +1,2 @@
 G231210021 Emir Abdullah Önal
-dsgfsgfsfhfggfhdf falanfilaniter milan barca real madrid fenerbahçe galatasaray beşiktaş trabzonspor
+dsgfsgfsfhfggfhdf falanfilaniter milan barca real madrid fenerbahçe galatasaray beşiktaş trabzonspor sivasspor ankaragücü kayserispor
