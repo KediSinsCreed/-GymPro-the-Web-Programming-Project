@@ -1,1 +1,1 @@
-Download the zipped file its it.
+unzip the zip for unzipping zip
